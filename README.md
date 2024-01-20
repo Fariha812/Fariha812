@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fariha812
+- 👋 Hi, I’m Fariha
 - 👀 I’m interested in musics and reading books 
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on ...
